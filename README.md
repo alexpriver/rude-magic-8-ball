@@ -33,7 +33,7 @@ Ask your question: Are there any good politicians?
 Alex asks: Are there any good politicians?
 
 Rude Magic 8 Ball says:
-There are questions to be answered, and then there are stupid questions.
+I am sure you know this better than a computer...otherwise you should be worried and find professional help.
 
 What I learned
 
